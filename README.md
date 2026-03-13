@@ -1,1 +1,3 @@
-yo this is a wip come back later?
+<div align=center>
+
+ITS NOT LETTING ME ADD PHOTOS WAIT
