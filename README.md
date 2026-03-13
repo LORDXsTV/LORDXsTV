@@ -1,3 +1,3 @@
 <div align=center>
 
-ITS NOT LETTING ME ADD PHOTOS WAIT
+its not letting me add photos so this is a wip 
