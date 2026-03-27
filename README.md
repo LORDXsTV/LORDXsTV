@@ -10,6 +10,8 @@ I AM GOD as an old chud laughs raspily adn fucking dies bc im so fucking old
 
 ok wait i mean i love this guy
 
-@ScourgeTHsTV is main
+<a href="https://github.com/ScourgeTHsTV"> @ScourgeTHsTV
+
+is main
 
 ok but this is mainly for my exe poniess okaightt
